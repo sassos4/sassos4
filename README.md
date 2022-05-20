@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sassos4 also known as Tom
+- 👀 I’m interested in tech, it and a lot of nerdy things.
+- 🌱 I’m currently learning at school, but soon i will learn some languages(i'm bored atm lol)
+- 💞️ I’m looking to collaborate on a nice project.
+- 📫 How to reach me? Idk myself
